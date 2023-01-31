@@ -1,3 +1,6 @@
 # joker
 
-[![Watch the video](https://github.com/Himanshu584/joker/blob/main/static/2023-01-31%2015-24-04.mp4)
+https://user-images.githubusercontent.com/70319246/215731749-5ea2f909-3aef-4dad-a66b-07b2b5b6a3f0.mp4
+
+
+
